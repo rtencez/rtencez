@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rtencez@gmail.com**
 
-- ⚡ Fun fact **They don't me...!**
+- ⚡ Fun fact **...!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
